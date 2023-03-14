@@ -1,1 +1,1 @@
-horace jamaica front end developer
+horace jamaica front end developer certification
